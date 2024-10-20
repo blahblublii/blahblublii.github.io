@@ -1,0 +1,137 @@
+---
+title: OOPS vs Hanoi X Girls 
+date: 2024-10-19 
+description: My analysis of semifinal elimination round in Street Woman Fighter - Vietnam (OOPS vs Hanoi X Girls).
+tag: analysis, dance
+---
+
+Phewwww, We finally made it to the elimination round. Honestly the production crew really doesn't respect the time of the viewers and I might just discontinue watching after these eliminations.
+
+Since I was tweeting a lot about this show, I decided to write a blog about it. Altho, we are a bit late, I decided to write about the elimination rounds between OOPS and Hanoi X Girls (HNXG) as well. 
+
+I am literally gonna watch the episode rn and write this review on the spot lol. Pardon me for the language (and grammar) but shit's about to get raw. *I'll try to be as objective as possible.*
+
+I **religiously** watch Jessica Holyfield's reactions to these and I might compare both our analyses later (if time permits).
+
+I'm hoping Hari Won and Diệp Lâm Anh are a bit fair PLEASE 😭 😭 😭
+
+<p style="text-align: center;">
+<i>drumrolls 🥁 🥁 🥁</i>
+</p> 
+
+## Recap
+
+PLEASE I can't do SSWARRIORZ eliminations again OMGGG 🥺 😭 😭
+
+## Battle Preparation & Rules
+
+Bruh why am I panicking??? I'm so nervous oh lord.
+
+These additional rules are crazy. Just let both crews join the finals no if the winner is undecided by 5 rounds??
+
+I'm not confident about OOPS going first but let's see.
+
+## Battle 1: Team Battle
+
+Bro, the editing team needs to stop cutting shit in-between please.
+
+OOPS put a lot of tricks in their choreo (like they did in their deathmatch mission). But the groove is just non-existent. It's not engaging either because it's just doing stunts and movements. It was not at all cohesive for me. They weren't very synchronized as a team either.
+
+HNXG shines in their teamwork and we saw it here again. Very strong opening. The dominoes were quicker and not like we are just doing it to waste time (as it felt for OOPS). Also the arms control and dips were nicely executed. In totality, a strong start for HNXG.
+
+What is this war music LOL. Let's not do judges commentary please 😭 Like it would be very pressuring for me I feel.
+
+Agree with Knucks that the pace was steady however it just got monotonous for me.
+
+## Battle 2: Ami vs Kyy
+
+Not EnV saying Kyy's ICONIC line from the first teaser.
+
+BRUH. BRUH. BRUH.
+
+I honestly can't decide. I really like Ami's flow OMG. 
+
+I feel like both did pretty equally in the first round. Kyy might have rushed a beat in the start. But still she proceeded well from it. However, when they were battling together I feel Ami was making tad bit better explorations. For one using more floorwork compared to Kyy and Kyy seemed a bit repetitive to me. I hope OOPS takes this.
+
+LESGOOOO AMI YESSSSSS. Ami is actually OOPS wildcard. Love how all judges gave win to OOPS LOL.
+
+(*I'm panicking AHHHH*)
+
+## Battle 3: EnV vs Đỗ Linh
+
+(*I'm rooting for OOPS. And Đỗ Linh. But let's see*)
+
+Can they stop fucking showing FED and show the ACTUAL BATTLE??
+
+Đỗ Linh's exploration was VERY GOOD in both parts (I would say she won in the same music segment). However, EnV's song (in solo battle) was very complex and she did very well with it (with great technicality).
+
+Honestly this might be a toss up for me. First, I feel the first battle was won by EnV but the second battle we could see EnV repeating movements. While Đỗ Linh was exploring more in a creative way. AHHHH. This is so hard.
+
+I might give it to Đỗ Linh actually but pretty evenly matched. Let's see what the judges do? This is really hard wow.
+
+WTF I didn't think it would be a sweeping victory with 3:1 votes.
+
+<!-- NOOOO Đỗ Linh please don't cry. -->
+Hari Won please stop saying stupid reasons challenge (impossible)
+
+> You use up to 150% energy
+
+That's not a valid reason to give her win OH LORD.
+
+Awwwwww no, not Waackxxxy crying I can't do this. But I really really disagree. Does that imply Đỗ Linh didn't try hard? Actually I thought she freestyled well in the matching song part. I don't know man. Not sure how I feel about this comment. I think judges shouldn't make comments like this. Maybe, Waackxxxy said this at the end of the rounds and the production crew edited it here and it's evil editing (that would make me mad). Anywho, we'll move on ig.
+
+## Battle 4: 2 vs 2
+
+Really smart for OOPS to send Trâm Anh and Ami considering their strong street style backgrounds.
+Why are they doing this surprise shit.
+
+Ke almost hit Vergina ijbol. OOPS sweeped that WOW. HNXG made two big mistakes. Altho I still think OOPS would've won without these mistakes. They really brought the battle spirit. Groove, great teamwork and also individual freestyle moments. 
+Hoping the judges aren't stupid please.
+
+Can they stop zooming in on FED so much LORD. Bruh, no fucking way this tied? I really don't like this decision. Maybe the mistakes weren't visible from the judges' side. This makes me so mad. They robbed OOPS honestly. If they get eliminated because of this I will be really mad.
+
+Diệp Lâm Anh, girl have you ever watched actual 2 vs 2 battles?? People do freestyle sections. And people in the background can always participate in the battles. You are supposed to focus on the people that are battling. DON'T PISS ME OFF.
+
+## Battle 5: Vergina vs HIDDEN
+
+NAUR. Not the hiding stuff.
+
+Can they stop this shit? Bruh, OOPS made a stupid decision. Their time got wasted. Like stop taking such stupid risks. And the thing is she probably wasn't visible from judges' end either. 
+
+Ok Vergina actually stepped up for her solo battle. This was better than her battle we saw previously.
+
+Yesssssssss OOPS girlie is EATING this together part. They aren't showing me enough Vergina to decide.
+
+Actually OOPS losing this is a big fault on their part. They shouldn't have gone with the hidden member shit. It seriously costed them. 
+
+Why are all the judges standing up LOL.
+
+Regardless, the 2-2 battle should've won by OOPS.
+
+## Elimination: Final Thoughts
+
+Not EnV apologizing. This is a happy ending after all the drama ig. OMG Ami I will cry.
+
+I'm sad OOPS got eliminated but they proved that they are WAY MORE than just a cover group. Kudos to them 👏 👏 👏
+
+## Bonus: Kyy vs Linh PC
+
+- Kyy bodied that. True battler spirit.
+- Linh PC did great isolations. But I felt like it didn't really connect with the music that well.
+    - Sidenote, the expectations really swept in. Because we saw Linh do similar movements in her previous battle (so I felt this was repetitive; altho this isn't objective of me).
+- Kyy is really impressive here, wow.
+- We finally did an actual battle here lol: same song played for both battlers; altho it was the same segment which is usually not the case.
+
+I don't understand why SO-FIRE is so adamant on using strategy? This is literally the finals. All the finalists should just do something that makes them proud. Not these cheap things. Altho I really dont know what prize the winning crew will get upon winning.
+
+I totally agree with EnV being mad because SO-FIRE completely disregarded their freestyle to do strategy. Oh gosh, I miss SSWARRIORZ and how fair they were when deciding stuff like these.
+
+WAHHHHHHHH OMGGG PLOT TWIST??? NOT FED BEING TEN MILES AHEAD OF EVERYONE WOW. I'M GAGGED???
+
+This is genius, wow. They anticipated that SO-FIRE will play strategy so danced poorly to get the song they picked. WOW. I love this. Honestly, this wouldn't have worked if it was SSWARRIORZ deciding their fates. But damn FED team is really-really smart.
+
+## Final Notes
+
+Honestly, I am unsure about whether I'll watch the final episode or not. The groups I was rooting for (SSWARRIORZ and OOPS) got eliminated. Plus it's so much drama for no reason. And the production team gave us elimination battle like two weeks later than when they could've actually given it to us I feel.
+
+Anywho, I can't do that for final again like waiting for an entire week to watch all performances. I hope they won't do that. But like I'm not sure if I'll stick around either.
